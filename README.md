@@ -23,6 +23,6 @@ I love fashion and also I am prefer to create something new. I have been looking
 Lingerieecco is my brand. Lingerieecco is meant **Ecological Lingerie**, and also my childhood nickname **Ekko** is meant of it.
 
 Here is a piicture of my lingerie:
-! [thong](https://www.instagram.com/p/BVk-FSvFRpt/?taken-by=lingerieecco)
+! [thong](https://scontent.fsan1-1.fna.fbcdn.net/v/t31.0-8/14991056_532374830291551_1081218178858767055_o.jpg?oh=62851b10aba3943ed2d952f245be1af4&oe=5B1E23FC)
 
 If you like to see more, please check out my [instagram account](https://www.instagram.com/lingerieecco/?hl=en)
